@@ -4,3 +4,4 @@
 "𝖧𝗈𝗅𝖽 𝗆𝗒 𝗁𝖺𝗇𝖽, 𝗠𝗮𝗱𝗲𝗺𝗼𝗶𝘀𝗲𝗹𝗹𝗲."      .         .       🪼
 
 ʚɞ 𝗯𝗮𝗌𝗂𝖼  𝘋𝘕𝘐 𝖼𝗋𝗂𝗍𝖾𝗿𝗶𝗮   . ¡
+<img width="736" height="414" alt="Tak berjudul277_20260416082317" src="https://github.com/user-attachments/assets/87a6b3ed-ea22-4c18-b906-1dff637f9980" />
